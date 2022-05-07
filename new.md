@@ -1,6 +1,6 @@
 - I'm FOTSING TCHOUPE
 - [Github](https://github.com/Fotsingboris)
-- [facebook](https://facebook.com/Fotsing Tchoupe)
+- [facebook](https://facebook.com/FotsingTchoupe)
 - [linked In](https://linkedin.com/in/Boris)
 - Best picture
 
